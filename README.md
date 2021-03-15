@@ -1,4 +1,4 @@
-![Discord Badge](https://camo.githubusercontent.com/9c72db1c955fd349568c41703ec4f7df0cc8a2f86c2d2a171aa795cdea5f96ae/68747470733a2f2f706c61636577616966752e636f6d2f696d6167652f3936302f323530)
+![Discord Badge](https://images-ext-2.discordapp.net/external/qPUoK0_tH_6zxO3JIZv0zeziOOernAFRMa3ntJ6s6s8/%3Fsize%3D1024/https/cdn.discordapp.com/avatars/322498824239316992/a_e6bf99d13d3c81f36115992aa7b971db.gif)
 
 
 
