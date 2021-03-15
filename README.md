@@ -1,4 +1,4 @@
-![Discord Badge](https://images-ext-2.discordapp.net/external/qPUoK0_tH_6zxO3JIZv0zeziOOernAFRMa3ntJ6s6s8/%3Fsize%3D1024/https/cdn.discordapp.com/avatars/322498824239316992/a_e6bf99d13d3c81f36115992aa7b971db.gif)
+![Discord Badge](https://media.discordapp.net/attachments/608711485849337856/815843256628936714/kaguya2.gif)
 
 
 
