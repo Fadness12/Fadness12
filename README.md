@@ -1,4 +1,4 @@
-![Discord Badge](https://cdn.discordapp.com/attachments/810793117745283132/821060199342145607/image0.gif)
+![Discord Badge](https://media.discordapp.net/attachments/608711485849337856/770315179837095936/a_f82ce6cfca3795b14d61a21ea922814b.gif)
 
 
 
