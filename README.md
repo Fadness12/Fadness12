@@ -5,7 +5,7 @@
 ✌️ Herkese merhaba ben Fadness, Yılmaz
 
 
-➥ 🌊 Ben js,discord.js,python kodlayan birisiyim
+➥ 🌊 Ben Javascript, Python, Discord.js, C# Dillerini kodlayan birisiyim
 
 ➥ 🌼 Githubda kodlar paylaşacağım
 
