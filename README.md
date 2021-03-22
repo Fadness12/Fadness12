@@ -11,4 +11,4 @@
 
 ➥ 🌲 Takipte kalmayı ve star vermeyi unutmayın
 
-➥ 💙 Discord, Steam Hesaplarım : [Fadness `Z 0007](https://discord.com/channels/@me) [Steam](https://steamcommunity.com/profiles/76561198936474768/)
+➥ 💙 Discord, Steam Hesaplarım : [Fadness#0007](https://discord.com/channels/@me) [Steam](https://steamcommunity.com/profiles/76561198936474768/)
