@@ -2,7 +2,7 @@
 
 
 
-✌️ Herkese merhaba ben Fadness
+✌️ Herkese merhaba ben Fadness, Yılmaz
 
 
 ➥ 🌊 Ben js,discord.js,python kodlayan birisiyim
